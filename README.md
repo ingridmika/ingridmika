@@ -6,4 +6,4 @@
 - 📫 para entrar em contato comigo: 
 - 😄 Pronomes: ela/dela
 - ⚡ meu passa tempo é desenhar
--->![im5766352@gmail.com](link)
+![](0000112452484sp@al.edacacao.sp.gov.br)
