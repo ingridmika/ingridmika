@@ -6,4 +6,6 @@
 - 📫 para entrar em contato comigo: 
 - 😄 Pronomes: ela/dela
 - ⚡ meu passa tempo é desenhar
-![](0000112452484sp@al.edacacao.sp.gov.br)
+  - Estou estudando na [Alura](https://www.alura.com.br)
+
+  ![luffy](https://media1.tenor.com/m/w7ThV57JRLkAAAAC/luffy.gif)
